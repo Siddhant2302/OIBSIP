@@ -1,2 +1,1 @@
-![Task-4(Siddhant Anandkumar Phadtare)](https://user-images.githubusercontent.com/130763952/232103168-4564f2fb-919e-4863-9508-7794d71c1253.png)
-
+![Task-4(Siddhant Anandkumar Phadtare)](https://user-images.githubusercontent.com/130763952/232103878-a5f076c3-4626-44d0-8dff-32fb7aaa945f.jpg)
